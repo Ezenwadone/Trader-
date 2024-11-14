@@ -1,0 +1,2 @@
+# Trader-
+Business idea
